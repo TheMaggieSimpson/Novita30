@@ -1,2 +1,2 @@
-# novita30
+# NovitaVM30
 Celebrating Novita's 30th birthday
