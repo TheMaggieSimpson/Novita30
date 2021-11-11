@@ -1,2 +1,2 @@
 # Novita30
-Celebrating Novita's 30th birthday
+Celebrating a friend's 30th birthday
